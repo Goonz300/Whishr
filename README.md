@@ -1,0 +1,2 @@
+# Whishr
+Global 🌎 money transfer
